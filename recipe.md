@@ -20,7 +20,8 @@
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
 =======
 - 1/2 tsp ground cinnamon
-- ...
+- some more cinnamon
+- and some more cinnamon, because u can't have enough cinnamon
 
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
